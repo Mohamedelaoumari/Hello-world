@@ -2,7 +2,7 @@
 
 3 days to merzouga 
 
-Your private desert tour Package of three days to Merzouga dunes is designed for travellers who want to explore the authentic south of Morocco in a shortest way . This desert tour experience from Marrakech takes you through a memorable journey where you will explore massive high atlas Mountain ranges,spectuclar Gorges of dades and Todra and Spend a lifetime night in the sahara Desert camp Under a canopy of stars with camel ride included.
+Your luxurious private desert tour Package of three days to Merzouga dunes is designed for travellers who want to explore the authentic south of Morocco in a shortest way . This desert tour experience from Marrakech takes you through a memorable journey where you will explore massive high atlas Mountain ranges,spectuclar Gorges of dades and Todra and Spend a lifetime night in the sahara Desert camp Under a canopy of stars with camel ride included.
 
 From Marrakech you will be driven by a private vehicule to Dades gorges heading towards High atlas Mountain range. En route we will visit Teloute Kasbah(mud-built castle) and Ait BenHaddou site.overnight in Dades gorges passing via the hollywood of Africa, Ourazazate city. The following day is a Sahara desert day,driving to Erg chebbi dunes passing by Todra gorges, where you can take a walk there, and a number of mud-built berber villages.when arriving to Erg chebbi dunes your guide will take on tour on camels to the camp where you can Spend a lifetime night in a Tented Camp Under the starry sky with all the stuff needed. 
 The Next day, a quite long drive but more pleasureable we drive back to Marrakech passing via Agdz town, Ourazazate and high atlas Mountains range.The arrival time will be on evening.
